@@ -1,8 +1,6 @@
 ![ảnh gr](Inmage/Messenger_creation_1083512096447083.jpeg)
 # Xin chào he hoan hỷ khi mn đến với gr của mình mình là boss ở gr này (𝜗𝜚_meo_sứa 🧋_𐙚boss𓆝)
 
-
-
 | Luật:                                                           |
 |-----------------------------------------------------------------|
 | 1: tôn trọng ng khác ko kì thị LGBT                             |
@@ -19,3 +17,6 @@
 | 12: Ko tự ý đổi tên nhóm hoặc hình nền                          |
 | 13: ko gửi ảnh kinh dị hoặc máu me                              |
 | 15: ko copy occ ng khác hay là lấy ảnh occ của ng               |
+
+# mình mong mn tuân thủ luật của gr ạ
+-------------------------------------------------------------------
