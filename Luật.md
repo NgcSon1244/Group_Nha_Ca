@@ -1,4 +1,4 @@
-![ảnh gr](inmage/Messenger_creation_1083512096447083.jpeg)
+![ảnh gr](Inmage/Messenger_creation_1083512096447083.jpeg)
 # Xin chào he hoan hỷ khi mn đến với gr của mình mình là boss ở gr này (𝜗𝜚_meo_sứa 🧋_𐙚boss𓆝)
 
 
