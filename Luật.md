@@ -18,5 +18,18 @@ Xin chào he hoan hỷ khi mn đến với gr của mình mình là boss ở gr 
 | 13: ko gửi ảnh kinh dị hoặc máu me                              |
 | 15: ko copy occ ng khác hay là lấy ảnh occ của ng               |
 
-# mình mong mn tuân thủ luật của gr ạ
+mình mong mn tuân thủ luật của gr ạ
 -------------------------------------------------------------------
+# tất cả loài cá
+
+| STT | Tên loài ká |
+|-----|-------------|
+| 1   | Ká mập      |
+| 2   | Ká ngựa     |
+| 3   | Ká heo      |
+| 4   | Ká ngừ      |
+| 5   | Ká hề       |
+| 6   | Ká mặt quỷ  |
+| 7   | Ká kiếm     |
+
+Hoặc ká bạn tự nghĩ (sự sáng tạo là vô tận)
