@@ -42,5 +42,5 @@ Hoặc ká bạn tự nghĩ (sự sáng tạo là vô tận)
 | lần 2:  nhắc nhở          |
 | lần 3:  cảnh cáo          |
 | lần 4: ra đảo 12 tiếng ![đảo 1](https://i.imgur.com/DFpeu.jpg)|
-| lần 5: ra đảo 1 ngày ![đảo 2](Inmage/tải xuống.jpeg)
+| lần 5: ra đảo 1 ngày ![đảo 2](adb.jpeg)
 | lần 6: xách ba lô và đi    |
