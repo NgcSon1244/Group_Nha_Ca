@@ -33,3 +33,14 @@ mình mong mn tuân thủ luật của gr ạ
 | 7   | Ká kiếm     |
 
 Hoặc ká bạn tự nghĩ (sự sáng tạo là vô tận)
+
+--------------------------------------------------------------
+# nếu như bạn vi phạm, bạn sẽ bị các mức độ sau đây:
+
+| lần 1 : nhắc nhở          |
+|---------------------------|
+| lần 2:  nhắc nhở          |
+| lần 3:  cảnh cáo          |
+| lần 4: ra đảo 12 tiếng ![đảo 1](https://i.imgur.com/DFpeu.jpg)|
+| lần 5: ra đảo 1 ngày ![đảo 2](https://i.imgur.com/DFpeu.jpg)
+| lần 6: xách ba lô và đi    |
